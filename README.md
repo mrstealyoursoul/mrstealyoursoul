@@ -1,4 +1,6 @@
-![](https://github.com/user-attachments/assets/e07c80a5-a424-4350-a7f4-942da1745f09)
+　![](https://github.com/user-attachments/assets/e07c80a5-a424-4350-a7f4-942da1745f09)
+
+　marios madness hyperfix🥀🥀
 
 　[straw](https://mrsys.straw.page/)　[ata](https://devilmario.atabook.org/)　[rentry](https://rentry.co/coryspazkid)　　
 
